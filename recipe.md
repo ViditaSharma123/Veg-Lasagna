@@ -1,0 +1,6 @@
+1. First, we need thin slices of bread. Make your bread thin and keep aside.
+2. Now we have to prepare our white sauce. First, heat a kadhai and put the butter in it, after the butter melts a little put the maida in it. Saute for 30 seconds, and then put in the milk. Saute it. Add seasonings for flavour.
+3. Now we have to prepare the red sauce we will grind our tomatoes and put them in a heated kadhai. Now we put in our sauces like:- chilli sauce, schezwan chutney, or tomato sauce. Add seasonings and salt as per taste. Red sauce is ready.
+4. Saute all veggies in some butter for extra flavour. Then add some seasonings on it for better taste. 
+5. Finally, we have all the things ready. Now we assemble all our things. First, we put a layer of red sauce, over it we put white sauce, and then bread slices to cover the sauces fully. Next, we put red sauce again, and then white sauce, and next we put some veggies and cheese. Over that we put bread slices, next we put white sauce and red sauce over it. next the rest of the cheese, and some veggies. Our lasagna is ready to be baked.
+6. bake and enjoy!
